@@ -1,1 +1,0 @@
-# codingnest_resume-kartik
